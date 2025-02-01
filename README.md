@@ -1,1 +1,0 @@
-# jaahnavikrishnamoorthy.github.io
